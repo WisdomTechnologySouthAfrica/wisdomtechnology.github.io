@@ -1,1 +1,1 @@
-# WisdomTechnology.github.io
+# WisdomTechnologySouthAfrica.github.io
