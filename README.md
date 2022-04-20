@@ -1,1 +1,1 @@
-# wisdomtechnology.github.io
+# WisdomTechnology.github.io
